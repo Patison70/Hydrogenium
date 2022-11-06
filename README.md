@@ -1,0 +1,2 @@
+# Hydrogenium
+Hydrogenium- хімічний елемент
